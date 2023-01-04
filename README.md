@@ -58,4 +58,4 @@ Soy un gran aficionado al desarrollo personal, siempre leyendo en mi tiempo libr
 
 ##  Contactame! ✍🏽
 
-📫  email  @ flora.gaston@outlook.com, visita mi perfil [LinkedIn](www.linkedin.com/in/gaston-flora-b73691260) 
+📫  email  @ flora.gaston@outlook.com, visita mi perfil @ www.linkedin.com/in/gaston-flora-b73691260
