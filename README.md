@@ -54,7 +54,7 @@ Soy un gran creyente de la importancia de las habilidades blandas ,el desarrollo
 
 ##  Intereses 👀
 
-Soy un gran aficionado al desarrollo personal, siempre leyendo en mi tiempo libre ,me gusta saber de todo , tambien me encanta el cine , la musica y otros medios audiovisuales.
+Soy un gran aficionado al desarrollo personal,  me gusta leer y saber de todo  ,  tambien me encanta el cine , la musica y otros medios audiovisuales.
 
 ##  Contactame! ✍🏽
 
